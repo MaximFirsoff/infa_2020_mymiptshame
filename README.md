@@ -1,3 +1,5 @@
 # infa_2020_mymiptshame
 
-i love physics
+Б02-002
+17
+7
